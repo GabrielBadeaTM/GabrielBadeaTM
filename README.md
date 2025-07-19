@@ -9,3 +9,5 @@
 ---
 
 - ✨ Hey, btw, check out my indie mobile game Shapeless, it's free ;] -> [Here](https://play.google.com/store/apps/details?id=com.UnderCtrl.Studios.Shapeless)
+- ❤️ If my profile intrigues you, you might want to take a look at my CV → [Here](https://drive.google.com/drive/folders/1WWy-VtVuLq7saAgJCndhNudxWOUuix95)
+
